@@ -1,4 +1,4 @@
-# Red Dead Redemption 2 Review
+# Red Dead Redemption 2 Detailed Review
 
 [Overview](Overview%2016e6ac02735780b5bcabebb81ab8d22b.md)
 
