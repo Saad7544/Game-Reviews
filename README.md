@@ -1,21 +1,21 @@
 # Red Dead Redemption 2 Detailed Review
 
-[Overview](Overview%2016e6ac02735780b5bcabebb81ab8d22b.md)
+[Overview](https://ash-saad-98.notion.site/Overview-16e6ac02735780b5bcabebb81ab8d22b)
 
-[Story and Characters](Story%20and%20Characters%2016e6ac027357800dabdbe3fa9b1f004f.md)
+[Story and Characters](https://ash-saad-98.notion.site/Story-and-Characters-16e6ac027357800dabdbe3fa9b1f004f)
 
-[Expanded Story Analysis](Expanded%20Story%20Analysis%2016e6ac02735780dca1a7d16fbd74d41e.md)
+[Expanded Story Analysis](https://ash-saad-98.notion.site/Expanded-Story-Analysis-16e6ac02735780dca1a7d16fbd74d41e)
 
-[Gameplay Mechanics in Detail](Gameplay%20Mechanics%20in%20Detail%2016e6ac02735780239ec6efc97f261ff8.md)
+[Gameplay Mechanics in Detail](https://ash-saad-98.notion.site/Gameplay-Mechanics-in-Detail-16e6ac02735780239ec6efc97f261ff8)
 
-[Side Activities and Longevity](Side%20Activities%20and%20Longevity%2016e6ac02735780288de7f4d2e8f0c2da.md)
+[Side Activities and Longevity](https://ash-saad-98.notion.site/Side-Activities-and-Longevity-16e6ac02735780288de7f4d2e8f0c2da)
 
-[Technical Brilliance](Technical%20Brilliance%2016e6ac0273578023be0ac9c5bcf93b57.md)
+[Technical Brilliance](https://ash-saad-98.notion.site/Technical-Brilliance-16e6ac0273578023be0ac9c5bcf93b57)
 
-[Themes and Emotional Depth: A Profound Exploration](Themes%20and%20Emotional%20Depth%20A%20Profound%20Exploration%2016e6ac02735780e097bcc67c89a9396e.md)
+[Themes and Emotional Depth: A Profound Exploration](https://ash-saad-98.notion.site/Themes-and-Emotional-Depth-A-Profound-Exploration-16e6ac02735780e097bcc67c89a9396e)
 
-[Conclusion: A Timeless Masterpiece](Conclusion%20A%20Timeless%20Masterpiece%2016e6ac027357805f8c08feea860a35d0.md)
+[Conclusion: A Timeless Masterpiece](https://ash-saad-98.notion.site/Conclusion-A-Timeless-Masterpiece-16e6ac027357805f8c08feea860a35d0)
 
-[My Accomplishments](My%20Accomplishments%2016e6ac02735780e1a67dc7c3eaba7d23.md)
+[My Accomplishments](https://ash-saad-98.notion.site/My-Accomplishments-16e6ac02735780e1a67dc7c3eaba7d23)
 
-[Red Dead Online](Red%20Dead%20Online%2016e6ac027357803bbebcc62baa8954cb.md)
+[Red Dead Online](https://ash-saad-98.notion.site/Red-Dead-Online-16e6ac027357803bbebcc62baa8954cb)
