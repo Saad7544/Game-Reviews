@@ -1,4 +1,5 @@
 ## Red Dead Redemption 2 Comprehensive Review
+
 <a href="https://ash-saad-98.notion.site/Red-Dead-Redemption-2-Review-16e6ac02735780138cabfb4dcc554acb"><img src="https://img.shields.io/badge/-Home%20Page-CD5C5C?style=for-the-badge&logo=home-page&logoColor=white" />
 </a>
 
